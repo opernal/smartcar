@@ -1,0 +1,5 @@
+aeu
+aeou
+aoeu
+aoeu
+
